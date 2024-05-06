@@ -1,6 +1,6 @@
 游戏获取链接
 
-链接:https://pan.baidu.com/s/12QnDsOo5-6QXl4uwBMVq2w 
+https://pan.baidu.com/s/12QnDsOo5-6QXl4uwBMVq2w 
 提取码:6666
 
 
