@@ -1,9 +1,9 @@
 游戏获取链接
 
-【超级会员V6】通过百度网盘分享的文件：获取地址
-链接:https://pan.baidu.com/s/1zBA735v1SA6dVLpBcyv8cw 
-提取码:31d6
-复制这段内容打开「百度网盘APP 即可获取」
+链接:https://pan.baidu.com/s/12QnDsOo5-6QXl4uwBMVq2w 
+提取码:6666
+
+
 
 务必收藏网站！防止失联。
 
