@@ -1,8 +1,7 @@
 游戏获取链接
 
-https://pan.baidu.com/s/12QnDsOo5-6QXl4uwBMVq2w 
-提取码:6666
-
+https://pan.baidu.com/s/197_M6FsB430--Say7i_usQ?pwd=1t4h 
+提取码:1t4h
 
 
 务必收藏网站！防止失联。
