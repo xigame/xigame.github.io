@@ -1,8 +1,8 @@
 游戏获取链接
 
 https://pan.baidu.com/s/1UPGuflW2iqzLad2SuRNiXg?pwd=9orm 
-提取码:9orm
 
+提取码:9orm
 
 务必收藏网站！防止失联。
 
