@@ -15,7 +15,7 @@
 
   <p> 游戏获取链接 </p>
  
-<p>  https://pan.baidu.com/s/1QCDU_hDk85lSqInmcfwyZQ?pwd=6666
+<p>  https://pan.baidu.com/s/1EwAnDJ7j2_ni2hKiFr3xBw?pwd=6666 
 提取码:6666
 </p>
 <p> 务必收藏网站！防止失联。</p>
