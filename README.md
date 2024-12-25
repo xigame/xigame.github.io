@@ -22,12 +22,8 @@
 
 <p> 如果百度网盘失效请用这个网盘直接下载菜单文档!</p>
 
-<p>  1备用网盘  
 
-https://qiwi.gg/folder/6624b743f55f41f6b89c2ab6
-</p>
-
-<p>  2备用网盘
+<p>  备用网盘
 
 https://files.fm/u/tgmn9gcyax     </p>
 
